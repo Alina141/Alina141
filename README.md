@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Alina141
 - 👀 I’m interested in fenching
 - 🌱 I’m currently learning biology
-- 💞️ I’m looking to collaborate on love
-- 📫 How to reach me happynest
+- 💞️ I’m looking to collaborate this time
+- 📫 How to reach me 89607721806
 - 😄 Pronouns: HCL
 - ⚡ Fun fact: I am Jedi like my master before me))))
 
